@@ -1,0 +1,2 @@
+# wiko.bot
+ALL IN ONE BOT - CREDITS TO WIKO
